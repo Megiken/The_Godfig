@@ -1,0 +1,37 @@
+put em al in tf/cfg
+800DPI IN GAME 10
+right click the game on steam and look for local file library open it up there you go!!!
+https://puu.sh/Kei9l/780067e0ef.jpg
+features:
+REVELANT AND COMPETETIVE VOICE LINES FOR EVERY CLASS ON EACH KEY
+zxc weapon swap and disguise swap on spy
+123 ARE VOICE MENU
+scrwheelup primary
+shift secondary
+mouse 4 melee
+~ slot 4 and corresponding chat messages as spy
+e playing as a class will call relevant call, medic, or incoming
+q calls for ammmo (help voice line and says metal on engy)
+\ console
+m1 primary
+m2 jump
+m3 drop disguise as spy
+M3 CALL FOR UBERCHARGE ANY OTHER CLASS
+q call for ammo (metal as engie)
+123 are voicemenu now
+shift and right click have been changed across classes to help in movement
+shift is bound to jump and crouch (sometimes more) on every class
+1234f1f2f3f4 engy build and destroy with coresponding chat messages
+disguise hotkeys and build and destroy keys with coresponding team chat messages 12345f1f2f3f4(r)-
+medic left blank since medic mains have their own config cartel anyways
+v nice shot
+mouse 5 toggle voice in game and call spy (except on spy)
+kl kill and explode
+/*-+ on keypad are loadouts 1-4
+123456789 keypad swaps classes
+bnjpCAPS LOCK(turn em off) are important text binds
+KP. AND ENTER ARE LOADOUT QUICK MENU
+SPACE AND MWHEEL DOWN ARE JUMP
+CTRL IS CROUCH
+I USE M0RE HUD AND MASTERCOMFIG ULTRA PRESET WITH LIGHT MOTION BLUR ENABLED
+PLS SEND ME MONEY I WORKED 240 HOURS+ ON THIS LINKS ON MY STEAM PROFILE

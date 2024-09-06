@@ -1,0 +1,16 @@
+"motd_entries"
+{
+	"last_request_time"		"2024-09-05 10:49:16"
+	"last_request_language"		"english"
+	"114"
+	{
+		"post_time"		"2024-07-18 23:55:00"
+		"title_english"		"Summer"
+		"text_english"		"Summer brings new community maps, community cosmetics, community taunts, and community Unusual effects! The Summer event runs through September 15, 2024."
+		"url"		"http://www.teamfortress.com/post.php?id=223066"
+		"image"		"../vgui/main_menu/motd_meet_your_match"
+		"header_type"		"0"
+		"header_english"		"News"
+		"header_icon"		"class_icons/filter_all_motd"
+	}
+}
