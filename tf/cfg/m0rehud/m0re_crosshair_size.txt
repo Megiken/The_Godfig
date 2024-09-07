@@ -1,1 +1,1 @@
-x { CustomCrosshair { font Crosshair_Size_18 } } 
+x { CustomCrosshair { font Crosshair_Size_30 } } 

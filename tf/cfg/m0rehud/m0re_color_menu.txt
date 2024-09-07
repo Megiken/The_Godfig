@@ -1,1 +1,1 @@
-#base ../../resource/ui/customizations/colors/menu_accent/menu_red.res 
+#base ../../resource/ui/customizations/colors/menu_accent/menu_grey.res 
