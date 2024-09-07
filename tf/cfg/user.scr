@@ -32,7 +32,7 @@
 
 
 // Half-Life User Info Configuration Layout Script (stores last settings chosen, too)
-// File generated:  Fri Sep  6 19:08:03 AM
+// File generated:  Sat Sep  7 14:37:11 AM
 //
 //
 // Cvar	-	Setting
@@ -276,7 +276,7 @@ DESCRIPTION INFO_OPTIONS
 		"#TF_simple_disguise_menu_option"
 		"#Tooltip_simple_disguise_menu_option"
 		{ BOOL }
-		{ "1" }
+		{ "0" }
 	}
 
 	"cl_autorezoom"
@@ -406,7 +406,7 @@ DESCRIPTION INFO_OPTIONS
 			"#TF_Spectator_Bottom_Center" "2"
 			"#TF_Spectator_Bottom_Right" "3"
 		}
-		{ "0" }
+		{ "2" }
 	}
 
 	"hud_freezecamhide"
@@ -648,7 +648,7 @@ DESCRIPTION INFO_OPTIONS
 		"#TF_classautokill"
 		"#Tooltip_classautokill"
 		{ BOOL }
-		{ "0" }
+		{ "1" }
 	}
 
 	"tf_respawn_on_loadoutchanges"
