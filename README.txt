@@ -1,7 +1,21 @@
+Alert Incoming Broacast (OF TEXT>!>!!>!?!?!?)
+bitch
+read what the fuck you see below this line
+-------------------------------------------------
+^that one          |
+                   |
+and this one/once* V
 ================================================
 ----------------------------------THE-----------
 -----------Godfig-------------------------------
 ================================================
+This is the last line im gonna write... no pictures lol
+anyways wait i gotta put the dick hang on
+also no cheaters, babies, f2p, pootis heavies, f2p pyros, friendlies, uncledane wanna be tryhards, uncledane wanna be friendlies, furries, femboys, weebs, or wait command haters were 
+harmed during the making of this config
+thank you
+have a nice day support me in any way you can chad!
+JIO:Euiol RV3WUIHIU3WEHR VHNWEASRHO 8U3F893VYUHA3WESI RHESA;IUOFH Q3woi;rjhkublszdhfnrkluhvr;orzsd hfgp7u89qa4hrt978
 Alright first things first, I want to thank eve-
 ry one who reads this. This is an ultimate culm-
 ination of my (almost... 16:57 9/6/2024 - 4000 hours awaiting share x downwoad to figuwe out :3 what sewvice i shouwd use in owda to make :3 the link that i will put hewe :3
@@ -125,12 +139,297 @@ the second shot
 the right click
 any ways all those little niche things that you wouldnt normally care too much or think about are included
 but every decision across every key is optimized with ergonomics (speaking of which my wrists are starting to hurt lol i love my mx clears
-_)
+_don't get it twisted this is the fucking shit when playing
+you wanna perfect det jump swap to phlog air strafe perfectly land on someones head right click as they move out from underneath you cancelling the charge activation for your cum launcher then kill at least 2 dipshits not paying atttention then this is the config for you
+heres one for all you gigachad scout comp players
+pressing shift on scout will simultaneously swap to secondary and crouch jump, one button winger swap and surf command on one convenient key
+you can still crouch and jump normally
+also b4nny if you've read this far mouse 2 is jump
+get busy
+lol anywhos
+love you so much b4nny special shoutout here for you ive spend more nights idling in your stream than fingers on my quantum hands.
+<3
+anyways
+i smoke more weed than habib and im hotter hmu
+jk love you too habib :DDDD
+arekk 
+rip yomps frffrfrfrfrfrfrfrrfrfrfrfrfr frffrfrfrfrfrfrfrrfrfrfrfrfr frffrfrfrfrfrfrfrrfrfrfrfrfr frffrfrfrfrfrfrfrrfrfrfrfrfr frffrfrfrfrfrfrfrrfrfrfrfrfr frffrfrfrfrfrfrfrrfrfrfrfrfr
+ frffrfrfrfrfrfrfrrfrfrfrfrfr frffrfrfrfrfrfrfrrfrfrfrfrfr frffrfrfrfrfrfrfrrfrfrfrfrfr frffrfrfrfrfrfrfrrfrfrfrfrfr frffrfrfrfrfrfrfrrfrfrfrfrfr frffrfrfrfrfrfrfrrfrfrfrfrfr frffrfrfrfrfrfrfrrfrfrfrfrfr frffrfrfrfrfrfrfrrfrfrfrfrfr frffrfrfrfrfrfrfrrfrfrfrfrfr
+ frffrfrfrfrfrfrfrrfrfrfrfrfr frffrfrfrfrfrfrfrrfrfrfrfrfr frffrfrfrfrfrfrfrrfrfrfrfrfr frffrfrfrfrfrfrfrrfrfrfrfrfr frffrfrfrfrfrfrfrrfrfrfrfrfr frffrfrfrfrfrfrfrrfrfrfrfrfr frffrfrfrfrfrfrfrrfrfrfrfrfr
+ frffrfrfrfrfrfrfrrfrfrfrfrfr frffrfrfrfrfrfrfrrfrfrfrfrfr frffrfrfrfrfrfrfrrfrfrfrfrfr frffrfrfrfrfrfrfrrfrfrfrfrfr frffrfrfrfrfrfrfrrfrfrfrfrfr frffrfrfrfrfrfrfrrfrfrfrfrfr frffrfrfrfrfrfrfrrfrfrfrfrfr frffrfrfrfrfrfrfrrfrfrfrfrfr
+ frffrfrfrfrfrfrfrrfrfrfrfrfr frffrfrfrfrfrfrfrrfrfrfrfrfr frffrfrfrfrfrfrfrrfrfrfrfrfr frffrfrfrfrfrfrfrrfrfrfrfrfr frffrfrfrfrfrfrfrrfrfrfrfrfr frffrfrfrfrfrfrfrrfrfrfrfrfr frffrfrfrfrfrfrfrrfrfrfrfrfr frffrfrfrfrfrfrfrrfrfrfrfrfr frffrfrfrfrfrfrfrrfrfrfrfrfr frffrfrfrfrfrfrfrrfrfrfrfrfr
+ frffrfrfrfrfrfrfrrfrfrfrfrfr frffrfrfrfrfrfrfrrfrfrfrfrfr frffrfrfrfrfrfrfrrfrfrfrfrfr frffrfrfrfrfrfrfrrfrfrfrfrfr frffrfrfrfrfrfrfrrfrfrfrfrfr
+such a fucking mechanical inspiration godspeed you magnificent bastart
+also shoutouts to all the based chad not child molesting medic mains out there
+:)
+leave
+anyways
+jayheyuehnd pae
+what the fuck 
+highsenspill is FUCKING REAL
+anyways
+yeah im gonna leave it there
+everything you could want to be there is bound
+i have relevant chat binds but you can change them as you want
+i didnt fuck with medic too much cause medic mains have their own config cocaine train
+ozzy ozbourne neighbour!
+anyways
+right click on medic swaps to medi gun jumps and crouches and pops
+shift just pops normally
+the settings that you would wanna change for personal preference are all chageable without the autoexec resetting them
+check comfig.app for the launch options
+#DX9ISDXCUTE
+k
+lol
+love you guys heres an ascii penis
 
-    
+)
+...............…………………………._¸„„„„_
+…………………….…………...„--~*'¯…….'\
+………….…………………… („-~~--„¸_….,/ì'Ì
+…….…………………….¸„-^"¯ : : : : :¸-¯"¯/'
+……………………¸„„-^"¯ : : : : : : : '\¸„„,-"
+**¯¯¯'^^~-„„„----~^*'"¯ : : : : : : : : : :¸-"
+.:.:.:.:.„-^" : : : : : : : : : : : : : : : : :„-"
+:.:.:.:.:.:.:.:.:.:.: : : : : : : : : : ¸„-^¯
+.::.:.:.:.:.:.:.:. : : : : : : : ¸„„-^¯
+:.' : : '\ : : : : : : : ;¸„„-~"
+:.:.:: :"-„""***/*'ì¸'¯
+:.': : : : :"-„ : : :"\
+.:.:.: : : : :" : : : : \,
+:.: : : : : : : : : : : : 'Ì
+: : : : : : :, : : : : : :/
+"-„_::::_„-*__„„~"
   
+ah that didnt work out that well probably for the best hang on a sec
+-
+-
+-
+-
+-
+-
+-
+-
+-
+-
+-
+-
+-
+-
+-
+-
+-
+-
+-
+-
+-
+-
+-
+-
+-
+
+-hi yeah theres an easter egg after the penis lol
+-
+-
+-
+-
+-
+-
+--
+-
+-
+
+--
+
+-
+--
+
+--
+-
+
+--
+-
+-
+ a-
+da-w
+w
+- wd- 
+awd
+- wa
+- aw
+- dd 
+-ad awo dsaeifjf
+
+0yio0y s
+isrg'spjkgijf  
+INCOMING!!!!
+=
+=
+=
+=
+==
+=
+=
+=
+=
+=
+=
+=
+=
+=
+=
+==
+=
+=
+=
+=
+=
+=
+=
+=
+=
+=
+=
+=
+=
+=
+=
+=
+=
+
+...............…………………………._¸„„„„_
+…………………….…………...„--~*'¯…….'\
+………….…………………… („-~~--„¸_….,/ì'Ì
+…….…………………….¸„-^"¯ : : : : :¸-¯"¯/'
+……………………¸„„-^"¯ : : : : : : : '\¸„„,-"
+**¯¯¯'^^~-„„„----~^*'"¯ : : : : : : : : : :¸-"
+.:.:.:.:.„-^" : : : : : : : : : : : : : : : : :„-"
+:.:.:.:.:.:.:.:.:.:.: : : : : : : : : : ¸„-^¯
+.::.:.:.:.:.:.:.:. : : : : : : : ¸„„-^¯
+:.' : : '\ : : : : : : : ;¸„„-~"
+:.:.:: :"-„""***/*'ì¸'¯
+:.': : : : :"-„ : : :"\
+.:.:.: : : : :" : : : : \,
+:.: : : : : : : : : : : : 'Ì
+: : : : : : :, : : : : : :/
+"-„_::::_„-*__„„~"
+
+wtf gotta try a different site
 
 
+lmao
+lol
+shark tales
+dragon tales
+pokemon world tails
+anywhos
+the penis
+without further ado
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+⠀⠀⠀⠀⠀⠀⠀⠀⣠⣶⣿⣿⣿⣷⣤⡀⠀⠀⠀⠀⠀⠀⠀
+⠀⠀⠀⠀⠀⠀⢀⣾⡿⠋⠀⠿⠇⠉⠻⣿⣄⠀⠀⠀⠀⠀⠀
+⠀⠀⠀⠀⠀⢠⣿⠏⠀⠀⠀⠀⠀⠀⠀⠙⣿⣆⠀⠀⠀⠀⠀
+⠀⠀⠀⠀⢠⣿⡏⠀⠀⠀⠀⠀⠀⠀⠀⠀⠸⣿⣆⠀⠀⠀⠀
+⠀⠀⠀⠀⢸⣿⡄⠀⠀⠀⢀⣤⣀⠀⠀⠀⠀⣿⡿⠀⠀⠀⠀
+⠀⠀⠀⠀⠀⠻⣿⣶⣶⣾⡿⠟⢿⣷⣶⣶⣿⡟⠁⠀⠀⠀⠀
+⠀⠀⠀⠀⠀⠀⣿⡏⠉⠁⠀⠀⠀⠀⠉⠉⣿⡇⠀⠀⠀⠀⠀
+⠀⠀⠀⠀⠀⠀⣿⡇⠀⠀⠀⠀⠀⠀⠀⠀⣿⡇⠀⠀⠀⠀⠀
+⠀⠀⠀⠀⠀⠀⣿⡇⠀⠀⠀⠀⠀⠀⠀⠀⣿⡇⠀⠀⠀⠀⠀
+⠀⠀⠀⠀⠀⠀⣿⡇⠀⠀⠀⠀⠀⠀⠀⠀⣿⡇⠀⠀⠀⠀⠀
+⠀⠀⠀⠀⠀⠀⣿⡇⠀⠀⠀⠀⠀⠀⠀⠀⣿⡇⠀⠀⠀⠀⠀
+⠀⠀⠀⠀⠀⠀⣿⡇⠀⠀⠀⠀⠀⠀⠀⠀⣿⡇⠀⠀⠀⠀⠀
+⠀⠀⠀⠀⠀⠀⣿⡇⠀⠀⠀⠀⠀⠀⠀⠀⣿⡇⠀⠀⠀⠀⠀
+⠀⠀⠀⠀⠀⠀⣿⡇⠀⠀⣸⣿⠀⠀⠀⠀⣿⡇⠀⠀⠀⠀⠀
+⠀⠀⠀⠀⠀⠀⣿⡇⢀⣴⣿⠇⠀⠀⠀⠀⣿⡇⠀⠀⠀⠀⠀
+⠀⠀⠀⢀⣠⣴⣿⣷⣿⠟⠁⠀⠀⠀⠀⠀⣿⣧⣄⡀⠀⠀⠀
+⠀⢀⣴⡿⠛⠉⠁⠀⠀⠀⠀⠀⠀⠀⠀⠀⠈⠉⠙⢿⣷⣄⠀
+⢠⣿⠏⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠙⣿⣆
+⣿⡟⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⢹⣿
+⣿⣇⠀⠀⠀⠀⠀⠀⢸⣿⡆⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⢸⣿
+⢹⣿⡄⠀⠀⠀⠀⠀⠀⢿⣷⠀⠀⠀⠀⠀⠀⠀⠀⠀⢀⣾⡿
+⠀⠻⣿⣦⣀⠀⠀⠀⠀⠈⣿⣷⣄⡀⠀⠀⠀⠀⣀⣤⣾⡟⠁
+⠀⠀⠈⠛⠿⣿⣷⣶⣾⡿⠿⠛⠻⢿⣿⣶⣾⣿⠿⠛⠉⠀⠀
+cute
 you press w with this config and i guarantee you every hot asian 5ft2 kawaiicorepilled heterosexual virgin medic gfwb will be shoving their medigun/kritz/quickfix/"vacc"inator an
 d shoutouts to the crossbow -
 so far up your poo hole that even the 2 girls one cup talent wouldnt want to get a single morcel of overheal from any of them.
