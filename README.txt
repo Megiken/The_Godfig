@@ -5,12 +5,13 @@
 Alright first things first, I want to thank eve-
 ry one who reads this. This is an ultimate culm-
 ination of my (almost... 16:57 9/6/2024 - 4000 hours awaiting share x downwoad to figuwe out :3 what sewvice i shouwd use in owda to make :3 the link that i will put hewe :3
-okay so yeah anyways... where was I, oh that's
+okay so yeah anyways... where was I, oh that's - ;)
 right. Works done for the day, my alarm just we-
 nt off. Here's a list of every resource used. R-
 ead thURGENT INSTRUCTION:
 READ THE FOLLOWING CAREFULLY:
-m0re HUD ======================================================================================================================================================================================m0re HUD ======================================================================================================================================================================================
+m0re HUD ======================================================================================================================================================================================m0reMASTEERCOMFIG (download a different graphics preset if you don't have a consumer grade lamborgini mercialago laying around under (or on top of) or maybe there is no desk)(desk)))?))))))))))))))))))))))))))))))))))))))))))))))))))))))))))))))))))))))))))))))))))))))))))))))))))))))))))))))))))))))))))))))))))))))))))))))))))))>?:PPPPPPPPPP
+======================================================================================================================================================================================
 m0re HUD ======================================================================================================================================================================================
 THAT IS ALL THANK YOU
 weirdc0re hud... stay tuned for more
